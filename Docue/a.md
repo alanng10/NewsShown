@@ -10,4 +10,6 @@ The Trump shown is gone to feel base expect benefit.
 
 The Trump shown is gone to feel base expect benefit with malign.
 
+The Trump shown is gone to malign.
+
 The Trump shown is TotalDone WORTH GAIN TIER and MARK DARK Interm.
